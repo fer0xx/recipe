@@ -10,7 +10,7 @@ Base:
 - 120 g Coconut oil
 - 6-10 Tablespoons water
 - Chocolate topping
-- 300 g chocolate
+- 800 g chocolate
 - 4 tbsp Coconut oil
 
 # INSTRUCTIONS
